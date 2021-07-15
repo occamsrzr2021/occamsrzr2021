@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @occamsrzr2021
+- 👋 Hi, I’m Adrianne (she/her)
 - 👀 I’m interested in ...Environmental Engineering and Sustainability.
 - 🌱 I’m currently learning ...JavaScript and all the basics!
 - 💞️ I’m looking to collaborate on ...anything environmental or outdoorsy, anything that will help me improve my skills.
